@@ -1,7 +1,4 @@
 - 👋 Hi, I’m @elham1398
-- hi hi hi,hihi,hhhhhkkkkkkkkkkkkkmmmmmmmmmmmm
-
-- hi elham3333
 
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
